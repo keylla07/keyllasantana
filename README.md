@@ -10,8 +10,8 @@ Meu nome é Keylla Santana
 
 ### Você pode entrar em contato comigo 📧
 
-paludettomarcelo@gmail.com
+00001249172329sp@al.educacao.sp.gov.br
 
-@m
+@keylla07
 
-![descrição do GIF](link GIF do Tenor)
+![](https://media1.tenor.com/m/L1wnEklX7BYAAAAd/monster-high-lesbian.gif)
